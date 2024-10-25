@@ -1,4 +1,3 @@
-Privacy Policy for [Shaheen Drive]
 
 Effective Date: [26/10/2024]
 
